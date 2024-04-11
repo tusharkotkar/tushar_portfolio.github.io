@@ -1,1 +1,1 @@
-# tushar_portfolio.github.io
+# HarshPatki.github.io
